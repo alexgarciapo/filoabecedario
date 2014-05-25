@@ -1,0 +1,23 @@
+Geografía es una materia que debería llamarse
+geografía filosófica, que dé unos principios
+explicativos. Debe preguntarse, por ejemplo,
+cuál es la implicación de las diferentes condiciones
+geográficas, climáticas, orográficas y demás, en la
+vida humana en determinado periodo histórico. Al
+describir un país, se debe hacer énfasis en cómo los
+factores de clima y ubicación imponen un sentido y 
+condicionamiento. Enseñar geografía
+filosóficamente, es darle un sentido a lo que se
+enseña. Y así puede hacerse en todas las materias.
+
+>Y así, los nuevos educadores
+>en ningún momento tratarán de ser
+>meros transmisores del saber,
+>ni siquiera habrán de conformarse
+>con la mera relación instructiva,
+>sino que en todo momento
+>será su ideal el formar seres humanos nuevos
+>y esto significa
+>atención a todas las facultades del ser humano,
+>físicas y espirituales.
+>**Francisco Giner de los Ríos**

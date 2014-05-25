@@ -1,0 +1,15 @@
+Un ser que pueda pensar por sí mismo,
+apasionarse por la búsqueda de sentido o
+por la investigación, es un ser mucho menos
+manipulable... Esto es la consecuencia que podría
+suceder como resultado de una intensificación, en
+nosotros mismos como educadores, de la búsqeuda
+y la construcción de una edcucación filosófica.
+
+>La mejor herencia que se le puede dar a un niño para
+>que pueda hacer su propio camino,
+>es permitir que camine por sí mismo.
+>**Isadora Duncan**
+
+
+
